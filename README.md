@@ -1,4 +1,6 @@
-Wip i think
+Idk what do put here so heres la creatura
+
+![](https://static.wikia.nocookie.net/houkai-star-rail/images/0/0f/Kafka_Sticker_03.png/revision/latest?cb=20230711045010)
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
