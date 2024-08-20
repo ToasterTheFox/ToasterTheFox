@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/992936d6432f1abcb37e062341d85143/45106c7b04818090-6a/s250x400/3461bb06f91f3aee45b3e5fb1c7d507948d2e469.gifv)
+![](https://64.media.tumblr.com/49aec429ce4611e7d4eca93906d31248/45106c7b04818090-d4/s250x400/6606fa558cf7335ba31370561689dcef86d10011.gifv)
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
