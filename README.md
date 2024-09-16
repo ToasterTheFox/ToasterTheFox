@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/f81599512a107bfcc133d2372874ab2f/ad902a58083ba86c-1d/s400x600/a3334a3093ead9e11bb9a818b0224653701047ad.gifv)
+![](https://64.media.tumblr.com/7f421d22ec87258a8b3cecafb9ad61cf/ad902a58083ba86c-14/s400x600/8d1d3303103b222d8374678d4f75544f20d9fe86.gifv)
 
 (Graphic creds [cirrucism on Tumblr](https://www.tumblr.com/cirrusism/731862700653789184/kafka-graphics-if-u-can-thank-uuuu))
 
