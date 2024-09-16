@@ -1,4 +1,8 @@
-![](https://64.media.tumblr.com/49aec429ce4611e7d4eca93906d31248/45106c7b04818090-d4/s250x400/6606fa558cf7335ba31370561689dcef86d10011.gifv)
+![](https://64.media.tumblr.com/f81599512a107bfcc133d2372874ab2f/ad902a58083ba86c-1d/s400x600/a3334a3093ead9e11bb9a818b0224653701047ad.gifv)
+
+(Graphic creds [cirrucism on Tumblr](https://www.tumblr.com/cirrusism/731862700653789184/kafka-graphics-if-u-can-thank-uuuu))
+
+...Im still learning how does this work T-T
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
