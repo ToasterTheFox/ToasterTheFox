@@ -1,6 +1,6 @@
-![](https://64.media.tumblr.com/7f421d22ec87258a8b3cecafb9ad61cf/ad902a58083ba86c-14/s400x600/8d1d3303103b222d8374678d4f75544f20d9fe86.gifv)
+![](https://64.media.tumblr.com/031bbe4ac8e5c2db0073f998a6959808/8d687e3b1c49707b-e7/s1280x1920/67e8398a73a4e8a16c588e4781091b78211b754a.gifv)
 
-(Graphic creds [cirrucism on Tumblr](https://www.tumblr.com/cirrusism/731862700653789184/kafka-graphics-if-u-can-thank-uuuu))
+(Graphic creds [murcuor on Tumblr](https://www.tumblr.com/murcuor/752076667307065344/%E1%9B%9D-kafka-%F0%93%8F%B9-rentry))
 
 ...Im still learning how does this work T-T
 <!--
