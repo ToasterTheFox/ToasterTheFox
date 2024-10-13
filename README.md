@@ -3,6 +3,7 @@
 (Graphic creds [murcuor on Tumblr](https://www.tumblr.com/murcuor/752076667307065344/%E1%9B%9D-kafka-%F0%93%8F%B9-rentry))
 
 ...Im still learning how does this work T-T
+Also i'm currently rmking my main rentry, be patient :3
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
