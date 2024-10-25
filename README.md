@@ -2,7 +2,7 @@
 ![](https://64.media.tumblr.com/3f3d85af6ac276db9471fdd95a24a6da/8229e5f6f3c588cc-2b/s1280x1920/9c3a507c8609b7d9a03b83f392b297e9874da955.pnj)
 
 
-(Divider: [sister-lucifer](https://www.tumblr.com/sister-lucifer/764692553483337728/if-youre-not-too-busy-could-you-make-dividers) 
+Divider: [sister-lucifer](https://www.tumblr.com/sister-lucifer/764692553483337728/if-youre-not-too-busy-could-you-make-dividers) 
 Graphic: [belovedrosa](https://www.tumblr.com/belovedrosa/765049196641419264/sunday-graphics-f2u-w-credits)
 
 ...Im still learning how does this work T-T M/w my bro Minx :3
