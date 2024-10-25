@@ -5,7 +5,7 @@
 (Divider: [sister-lucifer](https://www.tumblr.com/sister-lucifer/764692553483337728/if-youre-not-too-busy-could-you-make-dividers) 
 Graphic: [belovedrosa](https://www.tumblr.com/belovedrosa/765049196641419264/sunday-graphics-f2u-w-credits)
 
-...Im still learning how does this work T-T M/w best brother Minx :3
+...Im still learning how does this work T-T M/w my bro Minx :3
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
