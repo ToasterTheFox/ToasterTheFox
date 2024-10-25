@@ -1,9 +1,11 @@
-![](https://64.media.tumblr.com/031bbe4ac8e5c2db0073f998a6959808/8d687e3b1c49707b-e7/s1280x1920/67e8398a73a4e8a16c588e4781091b78211b754a.gifv)
+![](https://64.media.tumblr.com/d40ae7266602b976a87f8717a82410a4/1d4dc302c2811eae-8a/s2048x3072/f440ac61ceec338b962bfa8b3de3918136fe6242.pnj)
+![](https://64.media.tumblr.com/3f3d85af6ac276db9471fdd95a24a6da/8229e5f6f3c588cc-2b/s1280x1920/9c3a507c8609b7d9a03b83f392b297e9874da955.pnj)
 
-(Graphic creds [murcuor on Tumblr](https://www.tumblr.com/murcuor/752076667307065344/%E1%9B%9D-kafka-%F0%93%8F%B9-rentry))
 
-...Im still learning how does this work T-T
-Also i'm currently rmking my main rentry, be patient :3
+(Divider: [sister-lucifer](https://www.tumblr.com/sister-lucifer/764692553483337728/if-youre-not-too-busy-could-you-make-dividers) 
+Graphic: [belovedrosa](https://www.tumblr.com/belovedrosa/765049196641419264/sunday-graphics-f2u-w-credits)
+
+...Im still learning how does this work T-T M/w best brother Minx :3
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
