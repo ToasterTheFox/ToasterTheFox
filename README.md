@@ -1,11 +1,12 @@
-![](https://64.media.tumblr.com/d40ae7266602b976a87f8717a82410a4/1d4dc302c2811eae-8a/s2048x3072/f440ac61ceec338b962bfa8b3de3918136fe6242.pnj)
-![](https://64.media.tumblr.com/3f3d85af6ac276db9471fdd95a24a6da/8229e5f6f3c588cc-2b/s1280x1920/9c3a507c8609b7d9a03b83f392b297e9874da955.pnj)
+![](https://64.media.tumblr.com/c218741f42303fe45d7dfa8c61055f08/0aaac5d9744d8521-3c/s1280x1920/152d8ab5549761024093a5ffe5e5cddaee2aa581.pnj)
 
+![](https://64.media.tumblr.com/dd6738e5061bbd9726627ec6c03f30eb/7365ede2abbd0967-dd/s1280x1920/99937c71730d268d490d98594901b2928ee9c1bf.pnj)
 
-Divider: [sister-lucifer](https://www.tumblr.com/sister-lucifer/764692553483337728/if-youre-not-too-busy-could-you-make-dividers) 
-Graphic: [belovedrosa](https://www.tumblr.com/belovedrosa/765049196641419264/sunday-graphics-f2u-w-credits)
+Graphic: [scythidol](https://www.tumblr.com/scythidol/760950906312376320/boothill-layouts-for-anon)
 
-...Im still learning how does this work T-T M/w my bro Minx :3
+...Im still learning how does this work T-T M/w my bro Minx :3 /p
+
+![](https://64.media.tumblr.com/a92c3ffac277a5a386f6287be4d92b0e/0aaac5d9744d8521-64/s1280x1920/5f20853469e95f2c8915ac977e6e75d2c268a28f.pnj)
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
