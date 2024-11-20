@@ -1,12 +1,12 @@
-![](https://64.media.tumblr.com/c95607d472f84a1bac785ffe96a493ac/71948d3f4339f10d-e1/s1280x1920/62b93326c9876415a24a2deea5c18f4f79af79b6.pnj)
+![](https://64.media.tumblr.com/c8b35c8bae6b625b6349861fdd4c41dc/3e364036be0f1c15-60/s1280x1920/e5d01123963379cb0ef2bdcce264ca4670b99489.pnj)
 
-![](https://64.media.tumblr.com/dd6738e5061bbd9726627ec6c03f30eb/7365ede2abbd0967-dd/s1280x1920/99937c71730d268d490d98594901b2928ee9c1bf.pnj)
+![](https://64.media.tumblr.com/031bbe4ac8e5c2db0073f998a6959808/8d687e3b1c49707b-e7/s1280x1920/67e8398a73a4e8a16c588e4781091b78211b754a.gifv)
 
-Divider: [submarine-06](https://www.tumblr.com/submarine-06/746993737802055680/haii-may-king-request-bloody-dark-red-dividers) Graphic: [scythidol](https://www.tumblr.com/scythidol/760950906312376320/boothill-layouts-for-anon)
+Divider: [infectedrpd](https://www.tumblr.com/infectedrpd/765448912975872000/%F0%93%8F%B5-soft-purple-dividers-self) Graphic: [murcuor](https://www.tumblr.com/murcuor/752076667307065344/%E1%9B%9D-kafka-%F0%93%8F%B9-rentry)
 
 ...Im still learning how does this work T-T M/w my bro Minx :3 /p
 
-![](https://64.media.tumblr.com/78a04a18f6a00448b3c092159bd08d1b/71948d3f4339f10d-8f/s1280x1920/65edef817a48da5717d2f0ae15550e5e8b06ddef.pnj)
+![](https://64.media.tumblr.com/aba624d68ea9f31b2a57690a2b6eb029/3e364036be0f1c15-ba/s1280x1920/47de6de3d57f75f16ff7c7b570ba004768c80963.pnj)
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
