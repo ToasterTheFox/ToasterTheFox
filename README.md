@@ -1,10 +1,20 @@
-![](https://64.media.tumblr.com/0a249cd14d5f4b3eb146ecf974d961d7/4b9620392240b4dc-f2/s2048x3072/746272046b6df428d8740237de2b4316e9c993dd.pnj)
+![](https://64.media.tumblr.com/ba1005a14edaa685713e4d77fff8d689/7269a41cf1d72b56-cb/s2048x3072/90b9ef1e6f209f7f5490d2a5a6e2b42443b3b5bb.pnj)
 
-![](https://64.media.tumblr.com/031bbe4ac8e5c2db0073f998a6959808/8d687e3b1c49707b-e7/s1280x1920/67e8398a73a4e8a16c588e4781091b78211b754a.gifv)
+<div align="center"> (Divider by my friend perrie and graphic by my friend Rose!)
 
-Divider: [kodaswrld](https://www.tumblr.com/kodaswrld/760023167624478720/book-divider-set) Graphic: [murcuor](https://www.tumblr.com/murcuor/752076667307065344/%E1%9B%9D-kafka-%F0%93%8F%B9-rentry)
+![](https://64.media.tumblr.com/268b9f6e52a364b3abf51b0083f6dc61/44172180f8c40f1e-fe/s640x960/2d7c647bd24bbcd778046fedb12c146cbb2030f3.gifv)
 
-![](https://64.media.tumblr.com/0a249cd14d5f4b3eb146ecf974d961d7/4b9620392240b4dc-f2/s2048x3072/746272046b6df428d8740237de2b4316e9c993dd.pnj)
+ᯓ★ ⠀Toaster⠀ + ⠀Stardust / Atsu⠀☆
+
+⟡ ⠀[Rentry](https://rentry.co/Nessun_Dorma) ✦ [Straw](https://weretigerfennec.straw.page/) ✦ [Atabook](https://toasterthefox.atabook.org/) ⠀⟡⠀
+
+Guess who is my favorite character hehe... (hard edition)
+
+(No i don`t kin her shes my wife)
+
+![](https://64.media.tumblr.com/0d73552dc01c4331b9be934ffaa51141/44172180f8c40f1e-e1/s1280x1920/b1d1bb1515e1d4c3ad45e296475e4533c3b9f2ad.pnj)
+
+![](https://64.media.tumblr.com/ba1005a14edaa685713e4d77fff8d689/7269a41cf1d72b56-cb/s2048x3072/90b9ef1e6f209f7f5490d2a5a6e2b42443b3b5bb.pnj)
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
