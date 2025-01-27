@@ -12,7 +12,7 @@ I don't pretend quitting but for now please IWCUF, friends of friends or cool pp
 
 ![](https://64.media.tumblr.com/f212430850edcea486535f92be244b67/67ed0709d442744e-14/s1280x1920/8621c0680ed671322c2dad5db8bed8e856b8d097.pnj)
 
-⟡ ⠀[Rentry](https://rentry.co/Nessun_Dorma) ✦ [Straw](https://weretigerfennec.straw.page/) ✦ [Atabook](https://toasterthefox.atabook.org/) ⠀⟡⠀
+⟡ ⠀[Rentry](https://rentry.co/Nessun_Dorma) ✦ [Straw](https://sugarcloudexpress.straw.page/) ✦ [Atabook](https://toasterthefox.atabook.org/) ⠀⟡⠀
 
 Kafka is my favorite character and i dedicate my life to her <3
 
