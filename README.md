@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/f5747afd23ecacd3b296918159680405/ddb2b5072b347f9a-33/s2048x3072/c54dd7cc953c5d5a2d8a314aa43387ad255d4ba3.pnj)
 <div align="center">
   
-  Layout and pfp credits: [moemiji on Tumblr](https://www.tumblr.com/moemiji/773262210708439041?source=share)
+  Graphics credits: [moemiji on Tumblr](https://www.tumblr.com/moemiji/773262210708439041?source=share)
 
 ![](https://64.media.tumblr.com/0366fc2292a38f34b6a6e6bc9e6a9bfe/ddb2b5072b347f9a-a0/s1280x1920/f8137853b940044e33f02ee43052137580a9e84d.gifv)
 
