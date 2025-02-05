@@ -12,7 +12,7 @@ I don't pretend quitting but for now please IWCUF, friends of friends or cool pp
 
 ![](https://64.media.tumblr.com/30796b14e7936a34ca473105e5f23c1a/ddb2b5072b347f9a-82/s540x810/0b9d86599f53ffc6a9152d2f0197467215ded947.gifv)
 
-![](https://64.media.tumblr.com/95e25e8d068dd82bfce5791cde366266/ddb2b5072b347f9a-34/s100x200/6e846ab4d4751079188235a5f66544a4ba170bb2.gifv) ⟡ ⠀[Rentry](https://rentry.co/Nessun_Dorma) ✦ [Straw](https://sugarcloudexpress.straw.page/) ✦ [Atabook](https://toasterthefox.atabook.org/) ⠀⟡⠀![](https://64.media.tumblr.com/482014eaf9a6cf308cb372d7f2eac2d7/ddb2b5072b347f9a-54/s100x200/6a83ba5c64bafe74c3af394e524d3c925b88ff2a.gifv)
+![](https://64.media.tumblr.com/95e25e8d068dd82bfce5791cde366266/ddb2b5072b347f9a-34/s100x200/6e846ab4d4751079188235a5f66544a4ba170bb2.gifv) ⟡ [Rentry](https://rentry.co/Nessun_Dorma) ✦ [Straw](https://sugarcloudexpress.straw.page/) ⟡⠀![](https://64.media.tumblr.com/482014eaf9a6cf308cb372d7f2eac2d7/ddb2b5072b347f9a-54/s100x200/6a83ba5c64bafe74c3af394e524d3c925b88ff2a.gifv)
 
 Kafka is my favorite character and i dedicate my life to her <3
 
