@@ -1,14 +1,14 @@
-![](https://64.media.tumblr.com/0bb034d26b184f5d206890b7763e6927/9999fd8f3d29c6b5-3b/s2048x3072/8024f76aa21cec1f162f188188024cc284e8a474.pnj)
+![](https://64.media.tumblr.com/e92a268b32fac6b94f5c50a46a953a27/fd1ebdf832787231-41/s2048x3072/4b98e2026bc02b0ec198dc3264ff5c1ffbc63a14.pnj)
 <div align="center">
   
-  Layout/pfp: [tsuvrse](https://www.tumblr.com/tsuvrse/775083871882690560/%F0%93%8F%B2-falin-tumblr-layout-%F0%93%8F%BC-%F0%92%81%B9%E3%85%A4-%E3%85%A4-f2u-with?source=share) Dividers: [dollsciples](https://www.tumblr.com/dollsciples/757496878475739136/cream-kiss-dividers?source=share)
+  [Layout/pfp](https://www.tumblr.com/theleverethiding/763130447471558656)
 
-![](https://64.media.tumblr.com/8c33d6511845c1ce5c98eda1240f73eb/ce30f297ce086261-25/s1280x1920/9e543710da46189c258d6699c2136296bf3cbd63.pnj)
+![](https://64.media.tumblr.com/0990b078d65aa7431906eea110affe69/fd1ebdf832787231-28/s2048x3072/a180953cdb2013ff4db5c29fa66c16ff1e54cfb3.gifv)
 
 ᯓ★ ⠀Toaster⠀ + ⠀Stardust / Atsu⠀☆
 
-**PLEASE READ:** Even if its not always on my status i'm not comfortable with this game as much as i used to.
-I don't pretend quitting but for now please IWCUF, friends of friends or cool ppl i've interacted before are exceptions. /srs /nbr
+Even if its not always on my status, i'm not comfortable with this game as much as i used to.
+I don't pretend quitting but for now please IWC unless friends or friends of friends /srs /nbr but this doesn't mean i'm not open to make new ones :D
 
 ![](https://i.postimg.cc/bvmMMDV7/image-2024-05-24-133856019.png)
 
@@ -18,7 +18,7 @@ Kafka is my favorite character and i dedicate my life to her <3
 
 (No i don`t kin her shes my wife)
 
-![](https://64.media.tumblr.com/f3fa4144c13f89431c5a6fc092dbae03/9999fd8f3d29c6b5-12/s2048x3072/f76349b46f539a0cfee631f23f64d46870628462.pnj)
+![](https://64.media.tumblr.com/ce3d1b482a79e0e5d704efbfc3664232/fd1ebdf832787231-53/s2048x3072/fb7dda08c7506bc9dd08cd46cb7674e6498cbafd.pnj)
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
