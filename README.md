@@ -12,6 +12,8 @@ Uh idk what to put here... i'm the person w more than 40 kafka skins and somewha
 
  ⟡ [Rentry](https://rentry.co/Nessun_Dorma) ✦ [Straw](https://sugarcloudexpress.straw.page/) ⟡
 
+ ![](https://64.media.tumblr.com/3d4752d6cec4e55834951ad5fab4ef58/76800dbb33f62146-ab/s400x600/00f12ec689e99c7a589335fc78ca38ad98674247.gifv)
+
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
