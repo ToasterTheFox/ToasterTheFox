@@ -2,11 +2,11 @@
   
   [Graphics/pfp](https://www.tumblr.com/velvetjump/777922762852450304/wedding-cake-graphics)
 
-![](https://64.media.tumblr.com/f6d2b90ab00b6103be8305c33f579280/0558998d6fd2e70d-49/s1280x1920/c5050e46371465f3688e2da1c94d5c60d0bc2c13.pnj)
+![](https://64.media.tumblr.com/ababe95c45d949ba90d804f91b796e2b/0558998d6fd2e70d-da/s250x400/e9ba547485b750bfd8cd8290879458199ec57ef3.gifv)
 
-ᯓ★ ⠀Toaster⠀ + ⠀Stardust / Atsu⠀☆
+ᯓ★ ⠀Toaster⠀ + ⠀Stardust / Milky way⠀☆
 
-WILL RMK IT BETTER TMROW CHAT
+Uh idk what to put here... i'm the person w more than 40 kafka skins and somewhat consistent skin style... and i love the color purple and stars if you can't tell :3 More info on rentry
 
 ![](https://i.postimg.cc/bvmMMDV7/image-2024-05-24-133856019.png)
 
