@@ -4,7 +4,7 @@
 
 ![](https://64.media.tumblr.com/ababe95c45d949ba90d804f91b796e2b/0558998d6fd2e70d-da/s250x400/e9ba547485b750bfd8cd8290879458199ec57ef3.gifv)
 
-ᯓ★ ⠀Toaster⠀ + ⠀Stardust / Milky way⠀☆
+ᯓ★ ⠀Toaster⠀ + ⠀Stardust / Kin names⠀☆
 
 Uh idk what to put here... i'm the person w more than 40 kafka skins and somewhat consistent skin style... and i love the color purple and stars if you can't tell :3 More info on rentry
 
