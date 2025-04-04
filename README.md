@@ -1,8 +1,10 @@
  <div align="center">
+
+![](https://64.media.tumblr.com/759c2be8f66596372899243976d325b9/7717d3eaa14558a5-bf/s1280x1920/2a1121a7667c46c46580fb1f6ecce7d4bad80bf1.pnj)
   
   [Graphics/pfp](https://www.tumblr.com/velvetjump/777922762852450304/wedding-cake-graphics)
 
-![](https://64.media.tumblr.com/ababe95c45d949ba90d804f91b796e2b/0558998d6fd2e70d-da/s250x400/e9ba547485b750bfd8cd8290879458199ec57ef3.gifv)
+![](https://64.media.tumblr.com/43fe90c537d10ae22836e5f87e9c4cbf/7717d3eaa14558a5-6e/s2048x3072/4091adff60d2db631c70bea67e3ac04d45c7b565.gifv)
 
 ᯓ★ ⠀Toaster⠀ + ⠀Stardust / Kin names⠀☆
 
@@ -11,8 +13,7 @@ Uh idk what to put here... i'm the person w more than 40 kafka skins and somewha
 ![](https://i.postimg.cc/bvmMMDV7/image-2024-05-24-133856019.png)
 
  ⟡ [Rentry](https://rentry.co/Nessun_Dorma) ✦ [Straw](https://sugarcloudexpress.straw.page/) ⟡
-
- ![](https://64.media.tumblr.com/3d4752d6cec4e55834951ad5fab4ef58/76800dbb33f62146-ab/s400x600/00f12ec689e99c7a589335fc78ca38ad98674247.gifv)
+ ![](https://64.media.tumblr.com/7bf4340373187e3e0c8de55ea6f74c94/7717d3eaa14558a5-2c/s2048x3072/43e1f49a87f21acdddd1e4358a124df62944d7ca.pnj)
 
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
