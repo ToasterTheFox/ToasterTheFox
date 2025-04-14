@@ -4,7 +4,7 @@
   
   [Layout](https://www.tumblr.com/phaexie/780754389652635648/%E3%83%BE-weaver-of-gold-x-demised-scholar-credit)
 
-  ![](https://64.media.tumblr.com/2abd24feed51c2924fa0a24afa1a9725/397f7712f78dd980-61/s2048x3072/f14af0ad42658e0d972d4aa33264067fc0c86a86.gifv)
+  ![](https://media.discordapp.net/attachments/1226264579932295229/1361106737754669076/tumblr_1a74415598018473d1987c9269033d15_7f8b2d3f_2048_1.gif?ex=67fe35ae&is=67fce42e&hm=255b58e9e88dca835dc814ec5599ab0d2264853f744bfe18cf80f84aea2bc14c&=&width=813&height=457)
 
 ᯓ★ ⠀Toaster⠀ + ⠀Stardust / Kin names⠀☆
 
