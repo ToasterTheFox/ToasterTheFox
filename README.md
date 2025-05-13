@@ -1,8 +1,8 @@
  <div align="center">
   
-  ![](https://64.media.tumblr.com/b42db91ecd2a0700cd40c1d7a0091f82/52999a7e969b359a-74/s1280x1920/eb09689695460eb02b13eadbfb5829fe048be8e7.pnj)
+  ![](https://64.media.tumblr.com/44d326a362a3cad026bc3e41215ea878/9586ad10e5da44f8-14/s1280x1920/32bf22fadf15004c903e4b0adf6dda08007fde26.gifv)
   
-  [Layout](https://www.tumblr.com/raincosmos/744499335293779968/only-tomorrow-the-love-comes-easy-rblike?source=share)
+  [Layout](https://www.tumblr.com/lovestis/783051662273167360/hyacine-layouts-rrozeta-interact?source=share)
 
 ᯓ★ ⠀Toaster⠀ + ⠀Stardust / Kin names⠀☆
 
@@ -12,7 +12,7 @@ Uh idk what to put here... i'm the person w more than 40 kafka skins and somewha
 
  ⟡ [Rentry](https://rentry.co/Nessun_Dorma) ✦ [Straw](https://sugarcloudexpress.straw.page/) ⟡
 
- ![](https://64.media.tumblr.com/94b439f9506e6e01f6dcd97355e392d8/52999a7e969b359a-9f/s1280x1920/bc5b8d845392d435fb4bf857e65106047bf39ad5.gifv)
+ ![](https://64.media.tumblr.com/cd9b866c3c6eee6453fb49b08c3d11b1/9586ad10e5da44f8-19/s2048x3072/97dcbb68b62f0ab8649a1d05b525fe521a1527b0.gifv)
 
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
