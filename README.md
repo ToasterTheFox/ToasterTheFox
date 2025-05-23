@@ -10,7 +10,7 @@ Possible anxiety disorder + depression /vsrs
 
 Uh idk what to put here... i'm the person w more than 40 kafka skins and somewhat consistent skin style... and i love the color purple and stars if you can't tell :3 More info on rentry
 
- ⟡ [Rentry](https://rentry.co/Nessun_Dorma) ✦ [Straw](https://sugarcloudexpress.straw.page/) ⟡
+ ⟡ Rentry ✦ [Straw](https://sugarcloudexpress.straw.page/) ⟡
 
  ![](https://64.media.tumblr.com/cd9b866c3c6eee6453fb49b08c3d11b1/9586ad10e5da44f8-19/s2048x3072/97dcbb68b62f0ab8649a1d05b525fe521a1527b0.gifv)
 
