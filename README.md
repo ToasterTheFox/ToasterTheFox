@@ -2,7 +2,7 @@
  
   ![](https://64.media.tumblr.com/8e8660659378f17f728143b420ecd874/df31259d178bcb72-c8/s1280x1920/b7946f59913250c2b0382b4e1a7a7bff42c29477.gifv)
   
-  [Graphics](https://www.tumblr.com/cuisinekuga/785536321324187648/kafka-themepack?source=share)
+  [Layout](https://www.tumblr.com/cuisinekuga/785536321324187648/kafka-themepack?source=share)
 
 ᯓ★ ⠀Toaster⠀ + ⠀Stardust / Kin names⠀☆
 
