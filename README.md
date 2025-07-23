@@ -1,6 +1,6 @@
  <div align="center">
  
-  ![](https://64.media.tumblr.com/8e8660659378f17f728143b420ecd874/df31259d178bcb72-c8/s1280x1920/b7946f59913250c2b0382b4e1a7a7bff42c29477.gifv)
+  ![](https://64.media.tumblr.com/accd0aeadc25efe69fbffa30cd74f96f/3f8554c17536521f-88/s2048x3072/d08447b270ed963df485fc98cfc866f87615f963.pnj)
   
   [Layout](https://www.tumblr.com/cuisinekuga/785536321324187648/kafka-themepack?source=share)
 
@@ -8,13 +8,11 @@
 
 Possible anxiety disorder + depression /vsrs
 
-Uh idk what to put here... i'm the person w more than 40 kafka skins and somewhat consistent skin style... and i love the color purple and stars if you can't tell :3 More info on rentry (remaking it, slow cuz school)
-
-![](https://64.media.tumblr.com/2d87f8d72e3596705c951cb1e5892545/df31259d178bcb72-5a/s2048x3072/7bcd129b591989e9bdf2365c010f963f47de652d.pnj)
+Uh idk what to put here... i'm the person w more than 40 kafka skins and somewhat consistent skin style... and i love the color purple and stars if you can't tell :3 More info on rentry
 
  ⟡ [Rentry](https://rentry.co/Nessun_Dorma) ✦ [Straw](https://sugarcloudexpress.straw.page/) ⟡
 
-  ![](https://64.media.tumblr.com/80912009573ecacd42914698075f5b43/df31259d178bcb72-c4/s100x200/01d30857e111637313b84388fb8b85ca88d3026e.pnj) ![](https://64.media.tumblr.com/09b8149e5abaafa0e728879570f20e7c/df31259d178bcb72-56/s100x200/63279c7d94bb1fa70b463cf0dc1f590e7755e813.pnj) ![](https://64.media.tumblr.com/0862cbbe46d2963b7fe82484f83c3706/df31259d178bcb72-0f/s100x200/b855fda26082d00683c2ef88b4c33e7ca86f4148.pnj)
+  ![](https://64.media.tumblr.com/e1f009248ab42c474c069b28db5cb32d/3f8554c17536521f-e3/s2048x3072/7b4568349f1d2f977d526b9daacfd4d1e7d0b8c7.pnj)
 
 <!--
 **ToasterTheFox/ToasterTheFox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
